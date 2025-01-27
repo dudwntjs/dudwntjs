@@ -1,5 +1,4 @@
  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Welcome+to+my+GitHub!;오늘도++열심히+개발+공부중;Shining+like+the+Sun!&center=true&color=FFB6C1)](https://git.io/typing-svg)
-
 ---
 
 ### 🙋‍♀️ About Me
